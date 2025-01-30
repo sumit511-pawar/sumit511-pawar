@@ -56,9 +56,9 @@
 ---
 
 ### 📫 Connect With Me  
-📧 Email: [your.email@example.com](mailto:your.email@example.com)  
+📧 Email: [pawarsumitp2000@gmail.com](mailto:your.email@example.com)  
 💼 LinkedIn: [linkedin.com/in/sumit-pawar-b1b6331b9](https://www.linkedin.com/in/sumit-pawar-b1b6331b9/)  
-🌍 Portfolio: [your-website.com](https://your-website.com)  
+  
 
 ---
 
